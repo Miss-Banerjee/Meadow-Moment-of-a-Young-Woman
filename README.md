@@ -55,3 +55,5 @@
   }
 }
 ```
+> [!TIP]
+> Adjust the Cinematic and Film FX as you like, (use little bit 🧠).
