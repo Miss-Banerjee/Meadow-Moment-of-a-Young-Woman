@@ -1,2 +1,7 @@
-# Meadow-Moment
-Gemini Ai Prompt ✨ 🎨 💫
+> [!NOTE]
+> Meadow Moment of a Young Woman ✨ 🎨 💫 ✨ 🎨 💫
+
+
+> [!TIP]
+> Gemini Ai (PROMPT)
+```
