@@ -1,5 +1,5 @@
 > [!NOTE]
-> Meadow Moment of a Young Woman ✨ 🎨 💫 ✨ 🎨 💫
+> Meadow Moment of a Young Woman ✨ 🎨 💫
 
 
 > [!TIP]
