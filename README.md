@@ -59,3 +59,14 @@
 > Adjust the Cinematic and Film FX as you like, (use little bit 🧠).
 
 ## 📌 PREVIEW
+<img width="2988" height="4096" alt="Image" src="https://github.com/user-attachments/assets/eec3623a-2113-4012-9efa-5120ed59f475" />
+
+![Image](https://github.com/user-attachments/assets/5bda65e7-7d78-4a59-bc60-d3666b9bee8f)
+
+![Image](https://github.com/user-attachments/assets/7f2da8a6-8a46-4c76-9723-2d4bff96a672)
+
+![Image](https://github.com/user-attachments/assets/47da80bc-8320-42da-a2c9-b9d1e69988f4)
+
+![Image](https://github.com/user-attachments/assets/bbbffb93-9509-427a-8c01-a54cf86af92d)
+
+![Image](https://github.com/user-attachments/assets/02b3532c-4d03-4122-ad32-7878c5f290a3)
