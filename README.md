@@ -56,7 +56,7 @@
 }
 ```
 > [!TIP]
-> Adjust the Cinematic and Film FX as you like, (use little bit 🧠).
+> Adjust the Cinematic, Film FX and other stuff in prompt as you like, (use little bit 🧠).
 
 ## 📌 PREVIEW
 <img width="2988" height="4096" alt="Image" src="https://github.com/user-attachments/assets/eec3623a-2113-4012-9efa-5120ed59f475" />
